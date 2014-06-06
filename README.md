@@ -1,4 +1,2 @@
-kangsejo
-========
-
-Kang Sejo Melihat Tuhan - Mohammad Sobary
+== Kang Sejo Melihat Tuhan ==
+= Mohammad Sobary = 
