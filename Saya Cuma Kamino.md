@@ -1,6 +1,13 @@
-SAYA CUMA KAMINO
+Saya Cuma Kamino
 ================
 
+> salat keno, ora yo keno
+> pokoke mbela Bung Karno
+> salat keno, ora yo keno
+> sing penting mbelo Bung Karno.
+ 
+> (Salat boleh, tidak pun tak soal,
+> yang penting membela Bung Karno.)
 
 Di tahun 1960-an, salawat Badar yang dikorup ini pernah populer, termasuk di Bantul. Ini "ular" berkepala dua: kultus pada Bung Karno dan ejekan buat kekuatan Islam. Terutama, tentu saja, NU yang dianggap pemilik asli "lagu" ini.
 
