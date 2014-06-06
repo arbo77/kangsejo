@@ -5,7 +5,7 @@ Saya Cuma Kamino
 > pokoke mbela Bung Karno
 > salat keno, ora yo keno
 > sing penting mbelo Bung Karno.
- 
+>
 > (Salat boleh, tidak pun tak soal,
 > yang penting membela Bung Karno.)
 
