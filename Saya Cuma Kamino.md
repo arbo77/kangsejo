@@ -38,3 +38,7 @@ Pendeknya musuh telah tak berdaya. Tokoh-tokoh tua bilang, perang tak layak lagi
 Tuhan tiba-tiba menjadi kongkret. Termasuk buat Kaminonov. Haji Thohir yang "sepuh" itu rajin mengajarinya ngaji. Ia merawat rohani "si anak hilang" yang telah kembali. Maka, tak lupa tiap pengajian usai, ia ulang petuahnya: "Lembaran yang sudah dibaca ditutup. Begitu juga masa lalumu."
 
 Kaminonov tunduk sambil lirih mengucap: "Nggih, nggih, Pak Kaji, insya Allah." Fasih dia. Dan bila orang menyindir nama Rusianya, ia cuma senyum. Jawabnya: "Lembaran lama sudah ditutup. Saya cuma Kamino ..." 
+
+---
+*Mohammad Sobary,*
+*Tempo 6 Oktober 1990*
